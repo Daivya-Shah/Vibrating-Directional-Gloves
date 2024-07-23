@@ -1,1 +1,1 @@
-# Vibrating-Directional-Gloves
+# Vibrating Directional Gloves
